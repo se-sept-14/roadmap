@@ -1,5 +1,5 @@
 # **Bare minimum roadmap of placement activities** 🛣️
-> All courses here are free (some might not be, don't come at us lol)
+> All courses here are free (some might not be ¯\\\_(ツ)_/¯)
 
 **Placement Activity Doc:** [https://docs.google.com/document/u/1/d/e/2PACX-1vTNmtT16crBJwERX-RKiC9wBr25FhIe5qq9pSYv0Z08oq96UxPZL0IL_EKlLlmWlp8ZBGJeinLY5z8A/pub](https://docs.google.com/document/u/1/d/e/2PACX-1vTNmtT16crBJwERX-RKiC9wBr25FhIe5qq9pSYv0Z08oq96UxPZL0IL_EKlLlmWlp8ZBGJeinLY5z8A/pub)
 
